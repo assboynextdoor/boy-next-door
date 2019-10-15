@@ -1,9 +1,2 @@
 # boy-next-door
-fuck you!!!!!!
-fuck you!!!!!!
-fuck you!!!!!!
-fuck you!!!!!!
-fuck you!!!!!!
-fuck you!!!!!!
-fuck you!!!!!!
-fuck you!!!!!!
+啊啊啊啊啊啊啊啊
